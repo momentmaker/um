@@ -35,11 +35,11 @@ mix everything together along with onion juice and put it on the naval and aroun
 
 there are 3 types of headaches
 
-**wata** - neck area (need lubrication)
+**vata** - neck area (need lubrication)
 
-**pita** - middle of the head (need to cool down)
+**pitta** - middle of the head (need to cool down)
 
-**kafa** - fore head (hot med)
+**kapha** - fore head (hot med)
 
 #### tooth and gum inflammation
 

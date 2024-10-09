@@ -3,7 +3,7 @@
 ## self
 
 * [surrender](README.md)
-* [lessons from within](<README (1).md>)
+* [lessons from within](self/lessons-from-within.md)
 * [dokkōdō](self/dokk-d.md)
 * [wisdoms](self/wisdoms.md)
 * [path to creativity](self/path-to-creativity.md)
