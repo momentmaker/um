@@ -1,22 +1,17 @@
----
-description: 'inspired contemplations the morning after an ayahuasca ceremony:'
----
+# surrender
 
-# lessons from within
+life is an amazing thing.
 
-* breathe, respirar, breath. you can get through anything.
-* surrender to every moment. the more I surrender, the easier it is.
-* enjoy the silence.
-* joke with myself. learn more about myself. what I like. what my habits are.
-* it is the simple thing in life.
-* purpose of life - assist other when you can in an unforced way.
-* going with the flow of life.
-* thank you with intention and touch.
-* be grateful when things happen to you.
-* we are mirrors of each other.
-* I love myself
-* being me is the greatest gift to the world.
-* ask for help when I need it.
-* remember life has different paces depending on other's vibe
-* tag on "right now" - Jared
-* stimulus // response - feel the gap in between
+it's a beautifully orchestrated play we observe through our 5 senses as electrical conduit to the real us.
+
+my journey in life has taught me to let go and just serve the moment that unfolds in front of me with all my heart and soul.
+
+the moment in front of us is an immutable chain of events that stemmed from the beginning of Creation.
+
+how can we not honor it?
+
+i have no idea where life is guiding me but I'm curious to find out as i surrender to whatever she is hinting at me
+
+whatever it is, i am committed to do my best to serve what is asked of me.
+
+how can i help to serve the ever unfolding dance of life?
