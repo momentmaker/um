@@ -88,3 +88,12 @@
 * let go of scarcity
 * let go of goal setting
 * live with the questions
+
+## truth filters
+
+* consensus
+* consistency
+* authority
+* revelation
+* durability
+* science
