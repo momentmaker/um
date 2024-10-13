@@ -89,3 +89,18 @@
 * give away virtual tourism, sell virtual land (Second Life)
 * give away a music game, sell music tracks (Tap Tap Revolution)
 
+## prosumers
+
+* perform unpaid work through “third jobs” and self-service activities
+* buy capital goods from the money economy
+* lend their tools and capital to users in the money economy - another dish of free lunch
+* improve the housing stock
+* "marketize" products, services and skills
+* "de-marketize" products or services
+* create values as volunteers
+* provide valuable free information to for-profit companies
+* increase the power of consumers in the money economy
+* accelerate innovation
+* rapidly create knowledge, disseminate it and store it in the cybersphere for use in the knowledge-based economy
+* raise children and reproduce the labor force
+
