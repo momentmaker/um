@@ -59,7 +59,7 @@ if you have inflammation, fast; put 1/2 teaspoon ginger powder, 1/2 teaspoon ajw
 * fennel powder - 1 teaspoon
 * ghee - 1 teaspoon
 
-mix everything together; first thing in the morning; also turmuric juice
+mix everything together; first thing in the morning; also turmeric juice
 
 #### deep sleep
 
@@ -74,3 +74,62 @@ put a bit of ghee on the temples, crown chakra and tap it, and a bit on the feet
 sleep on the left side
 
 speak mantra: "om namo, shanti karaia, guru guru, swaha" - 7 times
+
+#### pain in the chest
+
+* jira powder - 1 teaspoon
+* coriander powder - 1/2 teaspoon
+* ajwain powder - 1/2 teaspoon
+* black salt - 1/4 teaspoon
+* hing - 2 pinch
+
+put it into half cup of water and mix it
+
+* ginger powder - 1 teaspoon
+* ajwain powder - 1 teaspoon
+
+apply on the feet
+
+#### fasting
+
+* 2-3 glasses of water
+* jira powder - 2 teaspoon
+* ajwain powder - 1/2 teaspoon
+* hing - 1/8 teaspoon
+* black salt - 1/4 teaspoon
+* black raisins
+* saffron powder - 2 pinch
+* clove powder - 2 pinch
+* nutmeg - 3-4 pinch
+* boiled water - half
+* cow's ghee - 1/2 teaspoon
+
+carry that water around as it's the meal
+
+#### sprained ankle
+
+* turmeric powder - 2 teaspoon
+* ginger powder - 1/2 teaspoon
+* cardamon powder - 1/8 teaspoon
+* fennel powder - 2 teaspoon
+* onion juice - optional
+
+mix it and put that paste that part
+
+#### sciatica
+
+* ginger powder - 1 teaspoon
+* ajwain powder - 1/4 teaspoon
+* jira powder - 2 teaspoon
+* 2 glass of water - boiled
+
+drink this water when hungry or thirsty
+
+#### difficult breathing
+
+* cow's ghee - 1 teaspoon
+* cardamon powder - 1/8 teaspoon
+* clove powder - 2-3 pinch
+
+suck everything
+
