@@ -97,3 +97,21 @@
 * revelation
 * durability
 * science
+
+## four noble truths
+
+* all of life is suffering
+* why we suffer is desire/preference/selfishness
+* we can end suffering
+* through the eightfold path
+
+## eightfold path
+
+* right views
+* right thought
+* right speech
+* right action
+* right livelihood
+* right effort
+* right mindfulness
+* right meditation

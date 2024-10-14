@@ -106,4 +106,12 @@ description: by john templeton
 * thoughts are things
 * as within, so without
 * thanksgiving, not complaining, attracts people to you
-* perservance makes the difference between success and defeat
+* perseverance makes the difference between success and defeat
+
+## week 14
+
+* the secret of a productive life can be sought and found
+* happiness is always a by-product
+* the way to mend the bad world is to create the right world
+* it is better to praise than to criticize
+* laughter is the best medicine

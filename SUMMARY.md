@@ -18,7 +18,6 @@
 * [zen teaching](self/zen-teaching.md)
 * [maya](self/maya.md)
 * [laws of life](self/laws-of-life.md)
-* [running down a dream](self/running-down-a-dream.md)
 * [health](self/health.md)
 * [3](self/3.md)
 
@@ -46,5 +45,6 @@
 
 ## dev
 
+* [running down a dream](dev/running-down-a-dream.md)
 * [career](dev/career.md)
 * [debugging](dev/debugging.md)
