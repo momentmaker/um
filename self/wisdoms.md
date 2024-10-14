@@ -107,11 +107,25 @@
 
 ## eightfold path
 
-* right views
-* right thought
-* right speech
-* right action
-* right livelihood
-* right effort
-* right mindfulness
-* right meditation
+* right views - that Truth is the guide of each person
+* right thought - to be calm at all times and not to harm any living creature
+* right speech - never to lie, never to slander anyone, and never to use coarse or harsh language
+* right action - never to steal, never to kill, and never to do anything one may later regret or be ashamed of
+* right livelihood - never to choose an occupation that is considered bad
+* right effort - always to strive for that which is good and avoid that which is evil
+* right mindfulness - of the Noble Truths, in calmness and detachment
+* right meditation - will then follow and lead to the path of perfect peace
+
+## mahayana
+
+* the greater vehicle of salvation
+* no person lives alone and individual salvation must therefore be involved with salvations of others
+* principle guide is the heart
+* the way is compassion
+
+## hinayana
+
+* the lesser vehicle of salvation
+* each individual must seek and find one's own salvation
+* principle guide is the head
+* the way is wisdom
