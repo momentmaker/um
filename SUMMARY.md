@@ -42,6 +42,7 @@
 * [business words of wisdom](business/business-words-of-wisdom.md)
 * [free](business/free.md)
 * [new economy](business/new-economy.md)
+* [effective employer](business/effective-employer.md)
 
 ## dev
 
