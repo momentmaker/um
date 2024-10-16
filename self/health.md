@@ -29,7 +29,7 @@ put everything in half cup of water and mix everything; drink 2-3 times
 * hing - 1/4 teaspoon
 * ginger - 1/8 teaspoon
 
-mix everything together along with onion juice and put it on the naval and around the naval
+mix everything together along with onion juice and put it on the navel and around the navel
 
 #### headaches
 
@@ -132,4 +132,43 @@ drink this water when hungry or thirsty
 * clove powder - 2-3 pinch
 
 suck everything
+
+#### coma or emergency or no energy
+
+vata going the wrong direction (important for circulation)
+
+**3 things to do**
+
+1. apply ghee on the temples
+2. apply on the navel and around the navel as a paste
+   * jira powder - 1 teaspoon
+   * ajwain powder - 1/4 teaspoon
+   * ginger powder - 1/4 teaspoon
+   * hing - 1/8 teaspoon
+   * mix with onion juice
+3. apply to the feet
+   * ajwain powder - 1 teaspoon
+   * ginger powder - 1 teaspoon
+   * mix together
+
+#### diarrhea
+
+* jira powder - 1 teaspoon
+* ginger powder - 1/2 teaspoon
+* poppy seeds - 1/2 teaspoon
+* sugar - 1 teaspoon
+* black raisins
+* ajwain powder - 2-3 pinch
+* hing - 1 pinch
+
+mix everything with hot water
+
+#### bipolar or schizophrenia
+
+* cow's ghee - 1 teaspoon
+* saffron - 2 pinch
+* cinnamon - 2 pinch
+* clove - 2 pinch
+* nutmeg - 4-6 pinch
+* bromelain powder - 1/4 teaspoon
 
