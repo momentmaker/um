@@ -115,3 +115,11 @@ description: by john templeton
 * the way to mend the bad world is to create the right world
 * it is better to praise than to criticize
 * laughter is the best medicine
+
+## week 15
+
+* humility, like darkness, reveals the heavenly light
+* use wisely your power of choice
+* if you do not know what you want to achieve with your life, you may not achieve much
+* more is wrought by prayer than this world dreams of
+* everything and everyone around you is your teacher
