@@ -172,3 +172,7 @@ mix everything with hot water
 * nutmeg - 4-6 pinch
 * bromelain powder - 1/4 teaspoon
 
+#### high blood pressure
+
+* dr. naram’s bp mantra formula
+
