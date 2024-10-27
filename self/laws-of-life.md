@@ -123,3 +123,11 @@ description: by john templeton
 * if you do not know what you want to achieve with your life, you may not achieve much
 * more is wrought by prayer than this world dreams of
 * everything and everyone around you is your teacher
+
+## week 16
+
+* hitch your wagon to a star
+* the price of greatness is responsibility
+* good words are worth much and cost little
+* you can never solve a problem on the same level as the problem
+* happy relationships depends on not finding the right person, but on being the right person
