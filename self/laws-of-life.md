@@ -131,3 +131,11 @@ description: by john templeton
 * good words are worth much and cost little
 * you can never solve a problem on the same level as the problem
 * happy relationships depends on not finding the right person, but on being the right person
+
+## week 17
+
+* we receive freely when we give freely
+* the truth will make you free
+* if you would find gold, you must search where the gold is
+* habit is the best of servants, the worst of masters
+* you cannot discover new oceans until you have the courage to lose sight of the shore
