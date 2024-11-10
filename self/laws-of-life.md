@@ -139,3 +139,11 @@ description: by john templeton
 * if you would find gold, you must search where the gold is
 * habit is the best of servants, the worst of masters
 * you cannot discover new oceans until you have the courage to lose sight of the shore
+
+## week 18
+
+* no one's education is ever complete
+* accentuate the positive; eliminate the negative
+* forgiving uplifts the forgiver
+* the light of understanding dissolves the phantom of fear
+* only one thing is more important than learning from experience, and that is not learning from experience
