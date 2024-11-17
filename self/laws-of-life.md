@@ -147,3 +147,11 @@ description: by john templeton
 * forgiving uplifts the forgiver
 * the light of understanding dissolves the phantom of fear
 * only one thing is more important than learning from experience, and that is not learning from experience
+
+## week 19
+
+* make yourself necessary to the world and mankind will give you bread
+* happiness comes from spiritual wealth, not material wealth
+* thoughts held in mind produce after their kind
+* progress requires change
+* fortune knocks at the door of those who are prepared
