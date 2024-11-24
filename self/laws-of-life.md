@@ -155,3 +155,11 @@ description: by john templeton
 * thoughts held in mind produce after their kind
 * progress requires change
 * fortune knocks at the door of those who are prepared
+
+## week 20
+
+* a good reputation is more valuable than money
+* to err is human, to forgive is divine
+* never do anything that you will have to punish yourself for
+* reverse the word evil and you have the word live
+* he who has a "why" for which to live, can bear with almost any "how"
