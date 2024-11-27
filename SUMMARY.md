@@ -20,6 +20,7 @@
 * [laws of life](self/laws-of-life.md)
 * [health](self/health.md)
 * [listening](self/listening.md)
+* [productivity](self/productivity.md)
 * [3](self/3.md)
 
 ## investing
