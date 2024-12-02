@@ -163,3 +163,11 @@ description: by john templeton
 * never do anything that you will have to punish yourself for
 * reverse the word evil and you have the word live
 * he who has a "why" for which to live, can bear with almost any "how"
+
+## week 21
+
+* all that we are is the result of what we have thought
+* once a word has been spoken, it cannot be recalled
+* you have the most powerful weapons on earth - love and prayer
+* remember, no one can make you feel inferior without your consent
+* no person was ever honored for what he received. honor has been the reward for what he gave
