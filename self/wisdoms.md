@@ -25,6 +25,7 @@
 * carefully observe the way your heart draws you and then choose that way with all your strength
 * eigenzeit - the time inherent to a process itself; the relentless pressure to be efficient at work, and outside it, is wearing us all down
 * when the shoe fits, the foot is forgotten; when the belt fits, the belly is forgotten; and when the heart is right, 'for' and 'against' are forgotten
+* when one is angry, if one can directly forget his anger and examine the right and wrong according to principle, then right and wrong will be clearly seen and desires will naturally be unable to persist
 
 ## michael saylor
 

@@ -171,3 +171,11 @@ description: by john templeton
 * you have the most powerful weapons on earth - love and prayer
 * remember, no one can make you feel inferior without your consent
 * no person was ever honored for what he received. honor has been the reward for what he gave
+
+## week 22
+
+* material progress needs entrepreneurs
+* as you are active in blessings with others, they find their burdens easier to bear
+* expect the best and your positive outlook opens the door of opportunity
+* when anger reigns, negative consequences occur
+* the wise person looks within his heart and finds eternal peace
