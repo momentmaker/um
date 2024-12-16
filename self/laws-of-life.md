@@ -179,3 +179,11 @@ description: by john templeton
 * expect the best and your positive outlook opens the door of opportunity
 * when anger reigns, negative consequences occur
 * the wise person looks within his heart and finds eternal peace
+
+## week 23
+
+* preparedness is a step to success
+* you are on the road to success if you realize that failure is only a detour
+* thanksgiving leads to giving and forgiving, and to spiritual growth
+* there is no difficulty that enough love will not conquer
+* self-control leads to success
