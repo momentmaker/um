@@ -4,6 +4,7 @@
 
 * [surrender](README.md)
 * [lessons from within](self/lessons-from-within.md)
+* [virtues](self/virtues.md)
 * [dokkōdō](self/dokk-d.md)
 * [wisdoms](self/wisdoms.md)
 * [path to creativity](self/path-to-creativity.md)
