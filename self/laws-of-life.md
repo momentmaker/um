@@ -187,3 +187,11 @@ description: by john templeton
 * thanksgiving leads to giving and forgiving, and to spiritual growth
 * there is no difficulty that enough love will not conquer
 * self-control leads to success
+
+## week 24
+
+* your thoughts are like boomerangs
+* you make yourself and others suffer just as much when you take offense as when you give offense
+* little things mean a lot
+* to be upset over what you don't have is to waste what you do have
+* honesty is the best policy
