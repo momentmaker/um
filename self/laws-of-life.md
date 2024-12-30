@@ -195,3 +195,11 @@ description: by john templeton
 * little things mean a lot
 * to be upset over what you don't have is to waste what you do have
 * honesty is the best policy
+
+## week 25
+
+* your prayers can be answered by "yes," but also by "no," and by "alternatives"
+* healthy minds tend to cause healthy bodies, and vice versa
+* outward beauty is transient, but inner beauty is lasting
+* a happy person is not a person in a certain set of circumstances, but rather a person with a certain set of attitudes
+* help yourself by helping others
