@@ -203,3 +203,11 @@ description: by john templeton
 * outward beauty is transient, but inner beauty is lasting
 * a happy person is not a person in a certain set of circumstances, but rather a person with a certain set of attitudes
 * help yourself by helping others
+
+## week 26
+
+* you create your own reality
+* a task takes as long as there is time to do it
+* often, a pat on the back works better than a kick in the pants
+* give credit and help to all who have helped you
+* thoughts can crystallize into habit, and habit solidifies into circumstance
