@@ -211,3 +211,11 @@ description: by john templeton
 * often, a pat on the back works better than a kick in the pants
 * give credit and help to all who have helped you
 * thoughts can crystallize into habit, and habit solidifies into circumstance
+
+## week 27
+
+* you can build your own heaven or hell on earth
+* a soft answer turns away wrath, but a harsh word stirs up anger
+* the pen is mightier than the sword
+* worry achieves nothing and wastes valuable time
+* the greatness is not in me; i am in the greatness
