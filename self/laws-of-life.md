@@ -219,3 +219,11 @@ description: by john templeton
 * the pen is mightier than the sword
 * worry achieves nothing and wastes valuable time
 * the greatness is not in me; i am in the greatness
+
+## week 28
+
+* laugh and the world laughs with you; weep, and you weep alone
+* if nothing is ventured, nothing is gained
+* honesty is the first chapter in the book of wisdom
+* a man can fail many times, but he isn't a failure until he begins to blame others
+* a soul without a high aim is like a ship without a rudder
