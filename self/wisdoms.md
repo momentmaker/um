@@ -130,3 +130,9 @@
 * each individual must seek and find one's own salvation
 * principle guide is the head
 * the way is wisdom
+
+## 3 ideas
+
+* the two minds
+* 80/20 your life
+* the prime belief
