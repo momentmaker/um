@@ -12,6 +12,7 @@
 * [idea cultivation](self/idea-cultivation.md)
 * [flow](self/flow.md)
 * [ikigai](self/ikigai.md)
+* [model](self/model.md)
 * [managing oneself](self/managing-oneself.md)
 * [eight awarenesses of great people](self/eight-awarenesses-of-great-people.md)
 * [principles and laws](self/principles-and-laws.md)
