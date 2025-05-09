@@ -127,6 +127,26 @@ acknowledge interrupting social norms if taking bold actions
 
 always err on the side of aggression
 
+### honest communication
+
+intention - teasing is done with with a fun and positive intention; insults are done with a negative intention
+
+there's no such thing as a man who is good with women who isn't also creepy some of the time
+
+creepiness - behaving in a way that threatens a woman sexually or causes her to feel insecure
+
+flirting - expressing your sexuality to a woman in a non-needy manner, eliciting her to become more attracted to you
+
+what a lot of men refer to as "game" is their ability to flirt with women
+
+leading is another type of flirting - statement of sexual interest, physically touching her, asking her personal questions about herself, inviting her out on a date or home with you
+
+emotional connections are POWERFUL
+
+seduction is about feelings, not facts
+
+
+
 
 
 
