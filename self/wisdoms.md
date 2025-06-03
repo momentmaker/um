@@ -136,3 +136,10 @@
 * the two minds
 * 80/20 your life
 * the prime belief
+
+## 4 skills
+
+* anchors
+* bets
+* classroom
+* discomfort
