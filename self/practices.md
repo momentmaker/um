@@ -4,6 +4,8 @@ description: song of the ten practices and cultivations - venerable master hsing
 
 # practices
 
+
+
 1. don't be calculative
 2. don't compare
 3. be polite
@@ -16,3 +18,11 @@ description: song of the ten practices and cultivations - venerable master hsing
 10. everyone, be the buddha
 
 if everyone tries these ten practices, we shall live in the buddha's Pure Land of joy and carefreeness
+
+***
+
+* question every desire to see whether it's really yours or it's memetic
+* invert your goals to become anti-goals
+* alternate nostril breathing to disrupt desire energy patterns
+* finish what you start to build your willpower
+* once the road is known, even when no one walks with you, walk like a man and go on alone
