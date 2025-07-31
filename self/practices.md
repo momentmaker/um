@@ -26,3 +26,4 @@ if everyone tries these ten practices, we shall live in the buddha's Pure Land o
 * alternate nostril breathing to disrupt desire energy patterns
 * finish what you start to build your willpower
 * once the road is known, even when no one walks with you, walk like a man and go on alone
+* don't try to change the old energy; instead, create a new energy vortex
