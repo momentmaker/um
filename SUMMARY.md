@@ -24,6 +24,7 @@
 * [health](self/health.md)
 * [listening](self/listening.md)
 * [productivity](self/productivity.md)
+* [superstitions](self/superstitions.md)
 * [3](self/3.md)
 
 ## investing
