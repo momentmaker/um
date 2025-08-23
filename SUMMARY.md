@@ -7,6 +7,7 @@
 * [virtues](self/virtues.md)
 * [dokkōdō](self/dokk-d.md)
 * [wisdoms](self/wisdoms.md)
+* [affirmations](self/affirmations.md)
 * [practices](self/practices.md)
 * [path to creativity](self/path-to-creativity.md)
 * [the creative act](self/the-creative-act.md)
