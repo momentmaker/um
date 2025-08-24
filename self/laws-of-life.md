@@ -227,3 +227,11 @@ description: by john templeton
 * honesty is the first chapter in the book of wisdom
 * a man can fail many times, but he isn't a failure until he begins to blame others
 * a soul without a high aim is like a ship without a rudder
+
+## week 29
+
+* joy provides assurance, envy brings loneliness
+* all sunshine makes a desert
+* whether you think you can or not, you are right
+* the mind can make a heaven into a hell, or a hell into a heaven
+* no man is free who is not master of himself
