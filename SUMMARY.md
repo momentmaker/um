@@ -21,6 +21,7 @@
 * [principles and laws](self/principles-and-laws.md)
 * [cognitive biases](self/cognitive-biases.md)
 * [zen teaching](self/zen-teaching.md)
+* [yoga sutras](self/yoga-sutras.md)
 * [maya](self/maya.md)
 * [laws of life](self/laws-of-life.md)
 * [health](self/health.md)
