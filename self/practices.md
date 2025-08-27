@@ -28,5 +28,5 @@ if everyone tries these ten practices, we shall live in the buddha's Pure Land o
 * once the road is known, even when no one walks with you, walk like a man and go on alone
 * don't try to change the old energy; instead, create a new energy vortex
 * allow yourself to be yourself; others to be others
-* do only what is effortless, easy, enjoyable
+* do only what is effortless, enjoyable, energetic
 * do what works; do what is right
