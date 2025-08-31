@@ -235,3 +235,11 @@ description: by john templeton
 * whether you think you can or not, you are right
 * the mind can make a heaven into a hell, or a hell into a heaven
 * no man is free who is not master of himself
+
+## week 30
+
+* it is by forgetting self that one finds self
+* leave no stone unturned
+* what we focus on expands
+* as you think, so you are
+* you choose the path you want to walk down
