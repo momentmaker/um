@@ -243,3 +243,11 @@ description: by john templeton
 * what we focus on expands
 * as you think, so you are
 * you choose the path you want to walk down
+
+## week 31
+
+* destructive language tends to produce destructive results
+* success feeds on itself and creates more success
+* never put off until tomorrow what you can do today
+* nothing is interesting if you are not interested
+* what is done is done
