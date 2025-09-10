@@ -43,7 +43,6 @@
 ## BUSINESS
 
 * [starting and growing a successful business](business/starting-and-growing-a-successful-business.md)
-* [web content curation](business/web-content-curation.md)
 * [ten commandments](business/ten-commandments.md)
 * [how to get rich](business/how-to-get-rich-naval.md)
 * [the inevitable](business/the-inevitable.md)
