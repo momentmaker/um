@@ -251,3 +251,11 @@ description: by john templeton
 * never put off until tomorrow what you can do today
 * nothing is interesting if you are not interested
 * what is done is done
+
+## week 32
+
+* we can become bitter or better as a result of our experiences
+* joy is not in things, but is in you
+* misfortunes can be blessings
+* happiness pursued, eludes; happiness given, returns
+* thoughts of doubt and fear are pathways to failure
