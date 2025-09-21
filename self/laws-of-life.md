@@ -259,3 +259,11 @@ description: by john templeton
 * misfortunes can be blessings
 * happiness pursued, eludes; happiness given, returns
 * thoughts of doubt and fear are pathways to failure
+
+## week 33
+
+* by their fruits you shall know them
+* optimism has its roots in the abiding goodness
+* if you think you know it all, you are less likely to learn more
+* we carry within us the wonders that we seek without us
+* the shadow of ignorance is fear
