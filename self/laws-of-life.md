@@ -267,3 +267,11 @@ description: by john templeton
 * if you think you know it all, you are less likely to learn more
 * we carry within us the wonders that we seek without us
 * the shadow of ignorance is fear
+
+## week 34
+
+* you're either part of the problem, or part of the solution
+* a loving person lives in a loving world
+* the borrower is a servant to the lender
+* whatever you have, you must use it or lose
+* it's nice to be important, but it's more important to be nice
