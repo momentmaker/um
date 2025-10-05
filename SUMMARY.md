@@ -28,6 +28,7 @@
 * [listening](self/listening.md)
 * [productivity](self/productivity.md)
 * [superstitions](self/superstitions.md)
+* [ten cannots](self/ten-cannots.md)
 * [3](self/3.md)
 
 ## investing
