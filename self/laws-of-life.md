@@ -275,3 +275,11 @@ description: by john templeton
 * the borrower is a servant to the lender
 * whatever you have, you must use it or lose
 * it's nice to be important, but it's more important to be nice
+
+## week 35
+
+* those who seldom make mistakes seldom make discoveries
+* the measure of a man's real character is what he would do if he would never be found out
+* change your mind to change your life
+* progress and growth are impossible if you always do things the way you've always done things
+* it is more blessed to give than to receive
