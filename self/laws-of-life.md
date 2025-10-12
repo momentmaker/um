@@ -283,3 +283,11 @@ description: by john templeton
 * change your mind to change your life
 * progress and growth are impossible if you always do things the way you've always done things
 * it is more blessed to give than to receive
+
+## week 36
+
+* holding onto grievances is a decision to suffer
+* the seven deadly sins are pride, lust, sloth, envy, anger, covetousness, and gluttony
+* appearances are often deceiving
+* zeal is the inward fire of the soul that urges you onward toward your goal
+* minds are like parachutes - they only function when they are open
