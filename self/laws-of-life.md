@@ -291,3 +291,11 @@ description: by john templeton
 * appearances are often deceiving
 * zeal is the inward fire of the soul that urges you onward toward your goal
 * minds are like parachutes - they only function when they are open
+
+## week 37
+
+* you are more defined by what comes out of your mouth than what goes in
+* the journey of a thousand miles begins with one step
+* the dark of night is not the end of the world
+* love conquers all things
+* count your blessings every day and they will grow and multiply like well-tended plants
