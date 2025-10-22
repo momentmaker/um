@@ -16,7 +16,7 @@ my eyes are God's eyes, i see with my eyes of spirit. i see clearly the open way
 
 i am divinely sensitive to my intuitive leads, and give instant obedience to Thy will
 
-my ears are God's ears, i hear with ears of spirit. i am nonresistant and am willing to be led. i hear glad tidings of great joy
+my ears are God's ears, i hear with my ears of spirit. i am nonresistant and am willing to be led. i hear glad tidings of great joy
 
 i have perfect work in a perfect way; i give a perfect service for perfect pay
 
