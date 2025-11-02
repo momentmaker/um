@@ -299,3 +299,11 @@ description: by john templeton
 * the dark of night is not the end of the world
 * love conquers all things
 * count your blessings every day and they will grow and multiply like well-tended plants
+
+## week 38
+
+* you never really lose until you stop trying
+* everyone should keep in reserve an alternative plan for livelihood
+* if you are facing in the right direction, all you need to do is keep walking
+* the unknown is not unknowable and is vastly greater than the known
+* forgiveness benefits both the giver and the receiver
