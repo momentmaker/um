@@ -307,3 +307,11 @@ description: by john templeton
 * if you are facing in the right direction, all you need to do is keep walking
 * the unknown is not unknowable and is vastly greater than the known
 * forgiveness benefits both the giver and the receiver
+
+## week 39
+
+* humility opens the door to progress
+* your dreams can come true when you activate them
+* work is love made visible
+* for every effort, there is a cause
+* those who do good do well
