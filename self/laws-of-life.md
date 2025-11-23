@@ -315,3 +315,11 @@ description: by john templeton
 * work is love made visible
 * for every effort, there is a cause
 * those who do good do well
+
+## week 40
+
+* focus on where you want to go instead of where you have been
+* you get back what you give out
+* thanksgiving opens the door to spiritual growth
+* the more love we give, the more love we have left
+* every useful life is a ministry
