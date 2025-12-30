@@ -143,3 +143,10 @@
 * bets
 * classroom
 * discomfort
+
+## resonance
+
+* share your heart, not your ego
+* pursue mastery, not the score
+* love your opponent
+* visualize presence, not perfection
