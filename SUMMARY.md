@@ -29,6 +29,7 @@
 * [productivity](self/productivity.md)
 * [superstitions](self/superstitions.md)
 * [ten cannots](self/ten-cannots.md)
+* [dwapara yuga citizen](self/dwapara-yuga-citizen.md)
 * [systems](self/systems.md)
 * [3](self/3.md)
 
