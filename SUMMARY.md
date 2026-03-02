@@ -6,6 +6,7 @@
 * [lessons from within](self/lessons-from-within.md)
 * [virtues](self/virtues.md)
 * [dokkōdō](self/dokk-d.md)
+* [awakening](self/awakening.md)
 * [wisdoms](self/wisdoms.md)
 * [affirmations](self/affirmations.md)
 * [prayers](self/prayers.md)
@@ -54,6 +55,8 @@
 * [free](business/free.md)
 * [new economy](business/new-economy.md)
 * [effective employer](business/effective-employer.md)
+* [dennis felix](business/dennis-felix.md)
+* [misc](business/misc.md)
 
 ## dev
 

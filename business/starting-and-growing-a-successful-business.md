@@ -1,7 +1,5 @@
 # starting and growing a successful business
 
-
-
 **From Gringuito:**
 
 Here are a few thoughts about starting a growing business along with a bit of life-advice from someone that's been there.
@@ -53,8 +51,7 @@ I'm an angel investor so I can't speak about how VCs do it. I really like what W
 \
 I take all that into consideration and I determine the risk of losing my money or it being stuck in the company for much longer than I would like. I use this to back into what kind of return I need to get from the $5M to justify the investment. From that I get what percentage of the company I need to get that return. \
 \
-This is an overly simplified case just to explain the process. In reality there are normally existing investors by the time the company gets to me and there are other angels as well. We all jockey for position and for our best interests. It's a fun game. \
-
+This is an overly simplified case just to explain the process. In reality there are normally existing investors by the time the company gets to me and there are other angels as well. We all jockey for position and for our best interests. It's a fun game. <br>
 
 > (02-27-2014 11:51 PM)Hef Wrote: [ ](https://www.rooshvforum.com/post-665414.html#pid665414)What goes on in the room during the negotiations? Are people from both sides friendly or are they cussing at each other?
 
