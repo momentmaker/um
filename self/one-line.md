@@ -281,4 +281,5 @@ habit broken doesn't mean habit lost\
 a peace beyond all understanding can be reached when still and calm\
 it takes a few moment to come out of the dream world to another dream world\
 there is something nice about organizing and its completion\
-sensations are just outputs from sensors - none of them are real
+sensations are just outputs from sensors - none of them are real\
+still mind, stills minds
