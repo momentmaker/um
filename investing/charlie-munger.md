@@ -14,6 +14,66 @@
 
 "It's bad to have an opinion you're proud of if you can't state the arguments for the other side better than your opponents. This is a great mental discipline."
 
+## Note from Poor Charlie Almanack
+
+1. Find a simple idea and take it seriously.
+2. Good ideas are rare. When you find one bet heavily.
+3. Humans have been writing down their best ideas for 5,000 years. Read them.
+4. Avoiding stupid mistakes is more important than being smart.
+5. Don’t work with anyone you don’t admire.
+6. Don’t sell anything you wouldn’t buy.
+7. Avoiding a bad habit is easier than breaking a bad habit.
+8. Work on your best idea. Don't diversify
+9. Incentives rule everything around you.
+10. Never, ever, think about something else when you should be thinking about the power of incentives.
+11. The most important rule in management is: Get the incentives right.
+12. The storyteller is the most powerful person in the world.
+13. Education is the process whereby the ability to lead a good life is acquired.
+14. Be dependable for your tribe.
+15. Trust is one of the greatest economic forces on Earth.
+16. Don’t over optimize for growth at the expense of durability.
+17. Great businesses are built by going ridiculously far in maximizing or minimizing one or a few things. Think Costco.
+18. The combination of scale and fanaticism is _very_ powerful. Think Sam Walton.
+19. Do the unpleasant task first.
+20. Don’t multitask.
+21. Learning is changing behavior.
+22. Avoiding stupidity for a long time _is_ genius.
+23. Many hard problems are solved best when approached backwards.
+24. Think of ideas as tools. When a better tool comes along use it.
+25. Clip your business and personal expenses. Small leaks sink big ships.
+26. Make friends with smart dead people. Adam Smith, Darwin, Cicero, Ben Franklin —whoever interests you. Read their writing. Steal their ideas. They don’t need them anymore.
+27. Only focus on great businesses and great businesses have moats.
+28. Dominating a niche can produce profit margins that make you salivate.
+29. Telling people WHY increases compliance.
+30. Stay in the game long enough to get lucky.
+31. Stack cash to survive unexpected problems and seize unexpected opportunities.
+32. Don't confuse intelligence with invincibility.
+33. Panic spreads and compounds quickly.
+34. If you’re not winning —scale down and intensify.
+35. Appeal to interest, not to reason.
+36. Understanding opportunity cost is a superpower.
+37. Don’t confuse the map for the territory.
+38. People often interpret price as a signal for quality.
+39. All human systems are gamed.
+40. Beating back bureaucracy is a never ending battle.
+41. The acquisition of knowledge is a moral duty.
+42. Learning from history is a form of leverage.
+43. Make sure your best players get the most playing time.
+44. It is inevitable that bad things will happen to you. When they do get up, keep going, and remember the next maxim:
+45. Self pity has no utility.
+46. Find out what you are best at. Then pound away at it. Forever.
+47. Envy is weakness.
+48. The behavior of peer companies will be mindlessly imitated.
+49. Emotion blurs judgement.
+50. Only play games where you have an edge.
+51. Avoid mob rule. Avoid demagogues. Avoid dogma. Avoid bureaucracy.
+52. Optimize for independence.
+53. Use money to buy freedom.
+54. Aim for durability.
+55. Keep the people who don’t matter from interfering with the work of the people who do.
+56. What do you have an _intense_ interest in? Do that for your living.
+57. Self improvement has no end.
+
 ## An Investing Principles Checklist
 
 #### Risk - All investment evaluations should begin by measuring risk, especially reputational

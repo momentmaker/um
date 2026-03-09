@@ -150,3 +150,33 @@
 * pursue mastery, not the score
 * love your opponent
 * visualize presence, not perfection
+
+***
+
+How can we learn self-knowledge? Never by taking thought but rather by action. Try to do your duty and you’ll soon discover what you’re like. But what is your duty? The demands of the day.
+
+One who is content to simply experience life and act accordingly has all the truth he needs. This is the wisdom of the growing child.
+
+Greatness is never achieved by trying to imitate the greatness of another. Greatness is achieved by chipping away at everything that does not belong to you and expressing yourself so authentically that everybody else is forced to acknowledge you.
+
+Childhood could be called the age of play and therefore some children are never young and some adults never old. Never give up play as this will speed up aging and lower quality of life.
+
+Health lies in action and to be busy is the secret of grace and half the secret of content. Let us ask God not for possessions but for things to do for happiness lies in making things rather than consuming them.
+
+If youth were wise they would put love above all else and not fall into the trap that so many do of trading it for money, fame or other external recognition. Making all else subordinate to it until the end. How can it matter what price we pay for love.
+
+Greed and wealth originally arose as a hedge against starvation but later became vices as abundance and social norms no longer made them necessary for survival.
+
+Invest in experiences – travel, skill acquisition, taking some courses rather than acquiring possessions.
+
+You’re never done – learning, earning, growing or giving.
+
+The best investment you can make is one in yourself and your lifestyle.
+
+Discover your calling by going back to your roots, your childhood, the primal inclinations which set you on fire – the things which you got very enthusiastic about and couldn’t stop thinking about. Things which are so fun or easy for you are good signs.
+
+Education is the perfection of life and there should be 3 tenets on which to base education and its goals:
+
+1. The control of life through health, character, intelligence and technology
+2. The enjoyment of life through friendship, literature, nature and art
+3. The understanding of life through history, science, religion and philosophy

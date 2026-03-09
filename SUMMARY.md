@@ -32,6 +32,7 @@
 * [ten cannots](self/ten-cannots.md)
 * [dwapara yuga citizen](self/dwapara-yuga-citizen.md)
 * [systems](self/systems.md)
+* [read](self/read.md)
 * [one line](self/one-line.md)
 * [3](self/3.md)
 
@@ -44,6 +45,7 @@
 * [rules & checklist](investing/rules-and-checklist.md)
 * [cycle](investing/cycle.md)
 * [kriyananda](investing/kriyananda.md)
+* [tenets](investing/tenets.md)
 
 ## BUSINESS
 
