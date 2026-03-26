@@ -12,6 +12,7 @@
 * [prayers](self/prayers.md)
 * [practices](self/practices.md)
 * [path to creativity](self/path-to-creativity.md)
+* [motern method](self/motern-method.md)
 * [the creative act](self/the-creative-act.md)
 * [idea cultivation](self/idea-cultivation.md)
 * [flow](self/flow.md)
