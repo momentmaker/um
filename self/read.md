@@ -12,6 +12,8 @@ Generative Energy Restoring the Wholeness of Life
 
 **The Pampered Chef**
 
+**Space, Light and Harmony**
+
 ## 2025
 
 The Burnout Society
