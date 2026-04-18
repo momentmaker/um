@@ -284,4 +284,5 @@ there is something nice about organizing and its completion\
 sensations are just outputs from sensors - none of them are real\
 still mind, stills minds\
 one is enough; two might be too much\
-to play in the Play
+to play in the Play\
+be comfortable within your purse; extravagance will buy you discomfort
