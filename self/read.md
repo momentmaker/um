@@ -14,6 +14,8 @@ Generative Energy Restoring the Wholeness of Life
 
 **Space, Light and Harmony**
 
+**Manna: Two Visions of Humanity's Future**
+
 ## 2025
 
 The Burnout Society
