@@ -10,6 +10,7 @@
 * [wisdoms](self/wisdoms.md)
 * [affirmations](self/affirmations.md)
 * [prayers](self/prayers.md)
+* [chants](self/chants.md)
 * [practices](self/practices.md)
 * [path to creativity](self/path-to-creativity.md)
 * [motern method](self/motern-method.md)
