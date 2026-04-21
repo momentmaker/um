@@ -21,3 +21,7 @@ my ears are God's ears, i hear with my ears of spirit. i am nonresistant and am 
 i have perfect work in a perfect way; i give a perfect service for perfect pay
 
 i cast this burden on the Christ within, and i go free!
+
+***
+
+i go forth in perfect faith, at the power of Omnipresent Good, to bring me what i need at the time i needed it
