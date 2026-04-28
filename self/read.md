@@ -16,6 +16,8 @@ Generative Energy Restoring the Wholeness of Life
 
 **Manna: Two Visions of Humanity's Future**
 
+**The Monocle Book of Japan**
+
 ## 2025
 
 The Burnout Society
