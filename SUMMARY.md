@@ -1,8 +1,10 @@
 # Table of contents
 
+* [now](README.md)
+
 ## self
 
-* [surrender](README.md)
+* [surrender](<README (1).md>)
 * [lessons from within](self/lessons-from-within.md)
 * [virtues](self/virtues.md)
 * [dokkōdō](self/dokk-d.md)
