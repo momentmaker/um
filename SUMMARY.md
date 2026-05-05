@@ -1,10 +1,8 @@
 # Table of contents
 
-* [now](README.md)
-
 ## self
 
-* [surrender](<README (1).md>)
+* [surrender](README.md)
 * [lessons from within](self/lessons-from-within.md)
 * [virtues](self/virtues.md)
 * [dokkōdō](self/dokk-d.md)
@@ -39,6 +37,10 @@
 * [read](self/read.md)
 * [one line](self/one-line.md)
 * [3](self/3.md)
+
+***
+
+* [now](<README (1).md>)
 
 ## investing
 
