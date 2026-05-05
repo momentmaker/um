@@ -571,3 +571,5 @@ one is enough; two might be too much
 to play in the Play
 
 be comfortable within your purse; extravagance will buy you discomfort
+
+time doesn't really exist but the tick tock is real
