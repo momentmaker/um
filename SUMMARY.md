@@ -38,10 +38,6 @@
 * [one line](self/one-line.md)
 * [3](self/3.md)
 
-***
-
-* [now](<README (1).md>)
-
 ## investing
 
 * [warren buffet](investing/warren-buffet.md)
@@ -72,3 +68,7 @@
 * [running down a dream](dev/running-down-a-dream.md)
 * [career](dev/career.md)
 * [debugging](dev/debugging.md)
+
+***
+
+* [now](<README (1).md>)
