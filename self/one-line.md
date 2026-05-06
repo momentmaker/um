@@ -575,3 +575,5 @@ be comfortable within your purse; extravagance will buy you discomfort
 time doesn't really exist but the tick tock is real
 
 if the news is fake, imagine history
+
+the vanished lives of all men are dark with many shames
