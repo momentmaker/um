@@ -577,3 +577,5 @@ time doesn't really exist but the tick tock is real
 if the news is fake, imagine history
 
 the vanished lives of all men are dark with many shames
+
+a sick man in bed only has one wish
