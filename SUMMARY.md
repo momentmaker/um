@@ -16,6 +16,7 @@
 * [motern method](self/motern-method.md)
 * [the creative act](self/the-creative-act.md)
 * [idea cultivation](self/idea-cultivation.md)
+* [first principle building](self/first-principle-building.md)
 * [flow](self/flow.md)
 * [ikigai](self/ikigai.md)
 * [model](self/model.md)
