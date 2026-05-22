@@ -18,6 +18,8 @@ Generative Energy Restoring the Wholeness of Life
 
 **The Monocle Book of Japan**
 
+**Colors of Asia**
+
 ## 2025
 
 The Burnout Society
