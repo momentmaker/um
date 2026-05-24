@@ -69,7 +69,3 @@
 * [running down a dream](dev/running-down-a-dream.md)
 * [career](dev/career.md)
 * [debugging](dev/debugging.md)
-
-***
-
-* [now](<README (1).md>)
