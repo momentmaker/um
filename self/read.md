@@ -20,6 +20,10 @@ Generative Energy Restoring the Wholeness of Life
 
 **Colors of Asia**
 
+Obliquity
+
+**The Art of Noticing**
+
 ## 2025
 
 The Burnout Society
