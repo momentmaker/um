@@ -585,3 +585,5 @@ the secret of genius is to carry the spirit of the child into old age
 when the highest duty calls, all lesser duties fall away
 
 plan boldly; implement carefully
+
+when there is doubt, there is no doubt
