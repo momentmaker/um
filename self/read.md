@@ -28,6 +28,8 @@ Obliquity
 
 **The Love That Remains**
 
+**The Buddha on Wall Street**
+
 ## 2025
 
 The Burnout Society
