@@ -30,6 +30,8 @@ Obliquity
 
 **The Buddha on Wall Street**
 
+**The Ayahuasca Test Pilots Handbook**
+
 ## 2025
 
 The Burnout Society
