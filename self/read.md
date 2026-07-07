@@ -32,7 +32,7 @@ Obliquity
 
 **The Ayahuasca Test Pilots Handbook**
 
-**Who Am I**
+**Who am I**
 
 ## 2025
 
