@@ -34,6 +34,8 @@ Obliquity
 
 **Who am I**
 
+**Christian YOGA**
+
 ## 2025
 
 The Burnout Society
