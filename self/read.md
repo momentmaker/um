@@ -36,6 +36,8 @@ Obliquity
 
 **Christian YOGA**
 
+**Prometheus Rising**
+
 ## 2025
 
 The Burnout Society
