@@ -587,3 +587,5 @@ when the highest duty calls, all lesser duties fall away
 plan boldly; implement carefully
 
 when there is doubt, there is no doubt
+
+whatever the Thinker thinks, the Prover proves
