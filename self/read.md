@@ -38,6 +38,10 @@ Obliquity
 
 **Prometheus Rising**
 
+**DTV**
+
+**Songs of the Soul**
+
 ## 2025
 
 The Burnout Society
