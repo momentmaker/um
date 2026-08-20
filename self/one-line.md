@@ -593,3 +593,5 @@ whatever the Thinker thinks, the Prover proves
 either die a hero or live long enough to be a villan
 
 the heart has reasons that reason cannot understand
+
+feeling is the shakti of reason
