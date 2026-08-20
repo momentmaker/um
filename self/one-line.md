@@ -589,3 +589,7 @@ plan boldly; implement carefully
 when there is doubt, there is no doubt
 
 whatever the Thinker thinks, the Prover proves
+
+either die a hero or live long enough to be a villan
+
+the heart has reasons that reason cannot understand
