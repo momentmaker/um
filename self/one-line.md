@@ -595,3 +595,5 @@ either die a hero or live long enough to be a villan
 the heart has reasons that reason cannot understand
 
 feeling is the shakti of reason
+
+when the game is over, the king and the pawn end up in the same box
