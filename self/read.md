@@ -44,6 +44,8 @@ Obliquity
 
 **The Intuitive Gardener**
 
+**The Secret of The Yamas**
+
 ## 2025
 
 The Burnout Society
