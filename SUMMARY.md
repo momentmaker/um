@@ -7,6 +7,7 @@
 * [virtues](self/virtues.md)
 * [dokkōdō](self/dokk-d.md)
 * [awakening](self/awakening.md)
+* [optimist creed](self/optimist-creed.md)
 * [wisdoms](self/wisdoms.md)
 * [affirmations](self/affirmations.md)
 * [prayers](self/prayers.md)
