@@ -48,6 +48,8 @@ Obliquity
 
 **Into The Heart of Truth**
 
+**Obvious Adams: The Story of a Successful Businessman**
+
 ## 2025
 
 The Burnout Society
